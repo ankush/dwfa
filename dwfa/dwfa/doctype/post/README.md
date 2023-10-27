@@ -1,0 +1,1 @@
+Post for "Blogs" section of website.
